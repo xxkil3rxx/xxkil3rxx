@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xxkil3rxx
 - 👀 I’m interested in hacks
-- 🌱 I’m currently learning no of your business 
+- 🌱 I’m currently learning none of your business 
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me my gmail
 
